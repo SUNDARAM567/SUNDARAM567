@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SUNDARAM567
 - 👀 I’m interested in listening music
-- 🌱 I’m currently learning college
+- 🌱 I’m currently learning in college
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
